@@ -1,7 +1,7 @@
 ## :cyclone: Intro ...
 **Beside littérature and philosophy, i do like to take adventage enjoying what technology :robot: has been able to offer us.**
 
-**reach me via : [Instagram](https://www.instagram.com/ayoubprog/) or [Facebook](https://www.facebook.com/ayoub.elmohamedi/)**
+**Reach me via : [Instagram](https://www.instagram.com/ayoubprog/) or [Facebook](https://www.facebook.com/ayoub.elmohamedi/)**
 
 <details>
   <summary>GitHub Status</summary>
