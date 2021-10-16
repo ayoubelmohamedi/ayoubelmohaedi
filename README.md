@@ -1,5 +1,5 @@
 ## :cyclone: Intro ...
-**Beside littérature and philosophy, i do like to take adventage enjoying what technology :robot: has been able to offer us.**
+**Beside littérature and philosophy, i do like to take adventage enjoying what technology :robot: has offer us.**
 
 **Reach me via : [Instagram](https://www.instagram.com/ayoubprog/) or [Facebook](https://www.facebook.com/ayoub.elmohamedi/)**
 
